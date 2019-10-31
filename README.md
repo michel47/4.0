@@ -3,7 +3,7 @@
 
 This project is the project of all of us to evolve the world we are in.
 We are addressing the major challenges modern society encounters
-at all levels so Humanity can heals.
+at all levels so Humanity can heal.
 
 This is totally a participatory project, we welcome everyone who
 has a idea, a plan, to help  etc. so join us together we are making it better.
