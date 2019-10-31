@@ -1,7 +1,7 @@
 ## Human ®evolution 4.0
 
 
-This project is the project of all of us to evolve the world we are in.
+This project is a project for all, for us to evolve the world we are in.
 We are addressing the major challenges modern society encounters
 at all levels so Humanity can heal.
 
